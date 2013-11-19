@@ -1,1 +1,2 @@
 Hello
+Christmas is coming ... ^^
